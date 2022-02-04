@@ -1,0 +1,1 @@
+We have a bringht future.
